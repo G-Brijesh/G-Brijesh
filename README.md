@@ -44,8 +44,8 @@ I’m Brijesh G, a passionate AI/ML Engineer & Problem Solver who thrives on inn
 **📢 Let’s Connect & Build Something Epic!
 💬 Always open to collaborations, projects, and AI discussions!**
 
-**📩 Email: gokumallabrijesh@icloud.com,gokumallabrijesh@gmail.com
-💼 LinkedIn: inkedin.com/in/gokumalla-brijesh-80319028a**
+📩 Email: gokumallabrijesh@icloud.com,gokumallabrijesh@gmail.com
+💼 LinkedIn: inkedin.com/in/gokumalla-brijesh-80319028a 
 
 
 🔥 "AI isn’t just the future—it’s NOW. Let’s innovate, disrupt, and build the impossible!" 🔥
